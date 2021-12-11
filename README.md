@@ -1,0 +1,1 @@
+kısacası kimse dostum
