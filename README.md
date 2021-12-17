@@ -1,1 +1,1 @@
-kısacası kimse dostum
+komik
